@@ -1,2 +1,0 @@
-# AQAForEveryone
-AQAForEveryone
